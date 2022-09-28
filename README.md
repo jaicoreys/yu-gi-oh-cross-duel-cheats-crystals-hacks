@@ -1,2 +1,5 @@
-# yu-gi-oh-cross-duel-cheats-crystals-hacks
-YuGiOh Cross Duel free crystals Cheats unlock all cards Hacks free packs glitch
+# YuGiOh Cross Duel free crystals Cheats unlock all cards Hacks free packs glitch
+
+YuGiOh Cross Duel free crystals Cheats unlock all cards Hacks free packs glitch - The trigger effect is automatically activated in response to something. These can be optional or mandatory, usually expressed by the sentence "when or if x occurrences". These are not quick results. Flip monsters are a subcategory of this type, because whether they are summoned or attacked by flipping, the effect of flipping monsters will be activated when facing up. Tokens are ubiquitous in Yu Gi! The current yuan of dueling masters means that you will meet them sooner or later. Tokens are always considered ordinary monsters, YuGiOh Cross Duel cheat engine but they should follow their own set of rules: Tokens must always face up. This means that tokens are not a legitimate target for converting them to face down defensive positions. This also means that if an effect will change the face down of all monsters in the field, the marker will not be affected. Finally, tokens cannot be expelled face down.
+
+[see here](https://fengmod.top/yu-gi-oh-cross-duel/)
